@@ -1,2 +1,2 @@
-# fatprick69.xyz
-the fat prick source code
+# we know why you're here
+and we're sorry 😂
